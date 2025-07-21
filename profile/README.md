@@ -2,6 +2,8 @@
 Rust's ESP cheats boast several advantages that might tempt gamers, especially those new to the scene, which clarifies their appeal among inexperienced players. However, its lasting effects severely damage the foundations of honest competition, corrupting competitive balance and frustrating authentic players who strive to win based on skill and accumulated expertise, rather than on outside assistance.
 
 
+[![343535](https://github.com/user-attachments/assets/ce4d704b-457d-4505-ae62-4db001dfc47b)](https://y.gy/esp-rus-2025)
+
 ## Understanding Gaming Cheats and Player Motivations
 
 Gaming cheats are specialized instruments or alterations to software, crafted to bestow players with notable benefits. These benefits range from enhanced precision and the ability to see through obstacles, to automated targeting and immediate resource procurement. Players often resort to cheats to circumvent gameplay challenges, speed up their progress, assert dominance in multiplayer scenarios, or purely for the enjoyment of discovering novel and engaging ways to interact with their preferred games.
